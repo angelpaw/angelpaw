@@ -1,16 +1,15 @@
-## Hi there 👋
+ <p align="center">
+   <img width="734" height="421" alt="Untitled659_20250720013301" src="https://github.com/user-attachments/assets/a2204259-d881-4852-9b55-2b1e9964714c" />
+</p>
 
-<!--
-**angelpaw/angelpaw** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+︵ֺ︵     ㅤ𝜚        ۪    ⠀ ⪩⪨
+<p align="center">
+၄⋆၃  ៸៸៸ over15/darkship dni ♡
+<p align="center">
+  ฅ ฅ    infp ⸝⸝ overly sensitive  ౨ 
+<p align="center">
+    𐂯  spn & alnst fandom iwec plz..
+ <p align="center">
+    <img width="400" src="https://spotify-github-profile.kittinanx.com/api/view?uid=31neovqlgcu5nmy5j4vqisn7iike&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=c2a596&bar_color_cover=false)]"alt=spotify" >
+</p>
