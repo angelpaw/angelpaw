@@ -12,4 +12,4 @@
     <img width="400" src="https://spotify-github-profile.kittinanx.com/api/view?uid=31neovqlgcu5nmy5j4vqisn7iike&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=c2a596&bar_color_cover=false)]"alt=spotify" >
 </p>
 
-[info><](https://mrfell.straw.page/)  [prns page!](https://en.pronouns.page/@pupdoll)  [ata](https://cr1mescene.atabook.org/)
+[info><](https://mrfell.straw.page/)  [prns page!](https://en.pronouns.page/@pupdoll)  [ata](https://puppypawz.atabook.org/)
