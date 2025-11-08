@@ -1,6 +1,7 @@
- <p align="center">
-   <img width="734" height="421" alt="Untitled659_20250720013301" src="https://files.catbox.moe/kia15x.png" />
+<p align="center">
+  <img src="https://files.catbox.moe/kia15x.png" />
 </p>
+
 
 <p align="center">
 ︵ֺ︵     ㅤ𝜚        ۪    ⠀ ⪩⪨
