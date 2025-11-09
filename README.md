@@ -6,7 +6,7 @@
 <p align="center">
 ︵ֺ︵     ㅤ𝜚        ۪    ⠀ ⪩⪨
 <p align="center">
-၄⋆၃  ៸៸៸ over15/darkship dni ♡
+၄⋆၃  ៸៸៸ i like space and dinosaurs ♡
 <p align="center">
   ฅ ฅ   infp ⸝⸝ i love my bf guyz  ౨ 
   
