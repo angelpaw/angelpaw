@@ -1,6 +1,7 @@
 <p align="center">
-  <img src="https://files.catbox.moe/kia15x.png" />
+  <img src="https://github.com/user-attachments/assets/44af2d9e-5962-4466-af3b-ff3a96ebba21" />
 </p>
+
 
 
 <p align="center">
