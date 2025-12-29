@@ -1,15 +1,18 @@
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/44af2d9e-5962-4466-af3b-ff3a96ebba21" />
+ㅤ  <p align="center">
+    <img width="400" src="https://files.catbox.moe/ovzvgs.png" >
 </p>
 
+<p align="center">
+   🐾     . . .⠀⠀꒰ adam raki / will graham ꒱ 
 
+<p align="center">
+puppy boy ︵  proudly woke  >⩊<  .ᐟ 
 
 <p align="center">
-︵ֺ︵     ㅤ𝜚        ۪    ⠀ ⪩⪨
+i love dinosaurs, space, fishing, and dogs :3
+
 <p align="center">
-၄⋆၃  ៸៸៸ i like space and dinosaurs ♡
-<p align="center">
-  ฅ ฅ   infp ⸝⸝ darkship dni  ౨ 
+         dni darkship / 18+   ୨୧   
   
  <p align="center">
     <img width="400" src="https://spotify-github-profile.kittinanx.com/api/view?uid=31neovqlgcu5nmy5j4vqisn7iike&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=000000&bar_color_cover=false)]"alt=spotify" >
